@@ -1,1 +1,1 @@
-Serenity and Jinx are alert and happy
+creates many shades of green
