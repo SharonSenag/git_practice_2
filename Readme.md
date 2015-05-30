@@ -1,1 +1,1 @@
-. The birds are singing and
+Serenity and Jinx are alert and happy
