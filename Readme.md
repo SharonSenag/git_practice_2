@@ -1,1 +1,1 @@
-starts the day off right
+. The birds are singing and
